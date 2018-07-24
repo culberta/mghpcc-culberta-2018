@@ -1,1 +1,0 @@
-# mghpcc-summer2018
